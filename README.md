@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Spaxz12
-- 👀 I’m interested in coding, gaming, and racing
+- 👀 I’m interested in coding, gaming, gym and racing
 - 🌱 I’m currently learning coding do be a coder
 - 📫 How to reach me Drecas.mar@gmail.com
 
