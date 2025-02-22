@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Spaxz12
+- 👋 Hi, I’m André
 - 👀 I’m interested in coding, gaming, gym and racing
 - 🌱 I’m currently learning coding do be a coder
 - 📫 How to reach me Drecas.mar@gmail.com
